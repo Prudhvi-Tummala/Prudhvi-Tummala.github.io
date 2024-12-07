@@ -1,1 +1,1 @@
-[Connect in LinkedIn]([www.](https://linkedin.com/in/prudhvitummala)
+[Connect in LinkedIn](https://linkedin.com/in/prudhvitummala)
