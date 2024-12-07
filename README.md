@@ -1,1 +1,1 @@
-[Connect in LinkedIn](https://linkedin.com/in/prudhvitummala)
+[Connect in Linkedin](https://linkedin.com/in/prudhvitummala)
